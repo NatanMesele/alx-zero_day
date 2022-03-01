@@ -1,1 +1,1 @@
-DO or DIE
+Peace and Love 
